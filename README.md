@@ -5,8 +5,7 @@
 
 
 
-
-![Screenshot (41)](https://user-images.githubusercontent.com/42202847/155849667-16830c2f-4f76-47d8-9649-51a1faaab336.png)
+![Screenshot 2022-02-26 212448](https://user-images.githubusercontent.com/42202847/155849778-d3deaf1a-79f9-413b-bf04-751c64e936d0.jpg)
 
 
 
